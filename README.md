@@ -19,13 +19,9 @@
 <br>
 <br><img src="https://dividers.crd.co/assets/images/gallery09/5e0c488c.png?v=05d33f91" width="350px">
 <br>
-<br>I shouldn't need to say this but if you're Pidge and co. <b>Leave me alone!</b>
-<br>I'm no longer associated with the person you hate me for! And I haven't
-<br>spoken to OR intereacted with you all in well over... half a year?
-<br>
-<br>I'd like to play the stupid horse social game in peace!
-<br>You know... because it's a social game!
-<br>Thank you in advance if you see this & have a good life! :3
+<br>If you ever have problems w/ me, whisper me or ask to talk it out in dms
+<br>elsewhere! I'd rather not have bad blood with people on the horse social
+<br>game :)
 <br>
 <br><img src="https://dividers.crd.co/assets/images/gallery09/5e0c488c.png?v=05d33f91" width="350px">
 <br><br><b>"I WOULD RATHER DIE ALONE."</b>
