@@ -12,9 +12,8 @@
 <br>
 <br><img src="https://dividers.crd.co/assets/images/gallery09/5e0c488c.png?v=05d33f91" width="350px">
 <br>
-  <br> <a href="https://rentry.co/OFFICERNOLEN">Rentry</a> - og source of info
+  <br> <a href="https://rentry.co/THECONARTIST">Rentry</a> - og source of info
   <br> <a href="https://conartist.atabook.org">Atabook</a> - sign this please :3
-  <br> <a href="https://hypericns.straw.page">Strawpage</a> - yippee strawpage !
   <br> <a href="https://toyhou.se/hypericns">Toyhouse</a> - i need to use it
 <br>
 <br><img src="https://dividers.crd.co/assets/images/gallery09/5e0c488c.png?v=05d33f91" width="350px">
