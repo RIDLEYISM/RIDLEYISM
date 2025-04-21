@@ -12,9 +12,9 @@
 <br>
 <br><img src="https://dividers.crd.co/assets/images/gallery09/5e0c488c.png?v=05d33f91" width="350px">
 <br>
-  <br> <a href="https://rentry.co/THECONARTIST">Rentry</a> - og source of info
-  <br> <a href="https://conartist.atabook.org">Atabook</a> - sign this please :3
-  <br> <a href="https://toyhou.se/hypericns">Toyhouse</a> - i need to use it
+<br>Links in case you need 'em !
+<br>(AF is due a revamp soon oops)
+  <br> <a href="https://rentry.co/THECONARTIST">Rentry</a> | <a href="https://conartist.atabook.org">Atabook</a> | <a href="https://artfight.net/~hypericns">ArtFight</a>
 <br>
 <br><img src="https://dividers.crd.co/assets/images/gallery09/5e0c488c.png?v=05d33f91" width="350px">
 <br>
