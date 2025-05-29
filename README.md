@@ -18,14 +18,8 @@
 <br>
 <br><img src="https://dividers.crd.co/assets/images/gallery09/5e0c488c.png?v=05d33f91" width="350px">
 <br>
-<br>If you ever have problems w/ me, whisper me or ask to talk it out in dms
-<br>elsewhere! I'd rather not have bad blood with people on the horse social
-<br>game :)
-<br>
-<br><img src="https://dividers.crd.co/assets/images/gallery09/5e0c488c.png?v=05d33f91" width="350px">
 <br><br><b>"ONLY NATURAL TO HARDEN UP."</b>
 <br>
-<rb></rb>
 <br><img src="https://64.media.tumblr.com/177bfd5f02954002514accd1869c42e1/f726d737f3264f84-c2/s1280x1920/6087d0966ab68ddd6fb73630e7af54a97d1d7529.gifv" width="600px">
 <br>
 <br><img src="https://images.steamusercontent.com/ugc/778493383646330055/BF45D52B64841C247C4FD7C3F7508A00D5DA2932/?imw=512&imh=299&ima=fit&impolicy=Letterbox&imcolor=%23000000&letterbox=true" width="600px">
